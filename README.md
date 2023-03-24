@@ -2,7 +2,7 @@
   <img src="https://telegra.ph/file/930ff28f8e22e70b00cfa.jpg" alt="Devil Botz">
 </p>
 <h1 align="center">
-  <b>Elsa</b>
+  <b>😈 Dark Devil 😈</b>
 </h1>
 
 <p align="center">
